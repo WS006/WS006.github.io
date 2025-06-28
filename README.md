@@ -1,5 +1,4 @@
-# WS006.github.io
-House Plus Group Factory--Professional Household Appliances &amp; Solar Products &amp; 3C Goods Manufacturer
+# House Plus Group Factory--Professional Household Appliances &amp; Solar Products &amp; 3C Goods Manufacturer
 
 ![House Plus Logo (1)](https://github.com/user-attachments/assets/2a649253-1dfa-44e0-8bea-b00eece23323)
 ## House Plus Group Factory
