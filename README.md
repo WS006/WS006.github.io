@@ -30,7 +30,7 @@ House Plus Group Factory: A professional Chinese manufacturer specializing in ho
 ## House Plus License
 
 
-This project is licensed under the House Plus License@## House Plus Group Factory.
+## House Plus License © 2025 HousePlus Group. All rights reserved.
 
 
 
